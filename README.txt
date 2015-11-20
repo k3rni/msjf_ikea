@@ -27,3 +27,10 @@ No i aż się zaczęli nakurwiać zapasy na dywanie VRÅBY w dużym pokoju a ja 
 > I BARDZO KURWA DOBRZE
 
 Tak go za ten paździerz znienawidził.
+
+Wspomniałem też o arcywrogu mojego starego czyli Lasach Państwowych. Stały się one kompletną obsesją ojca i jak np. w telewizji mówią że gdzieś było trzęsienie ziemi to stary zawsze mamrocze pod nosem, że powinni w końcu coś o tych skurwysynach z LP powiedzieć. Gazety inne niż promocyjne też przestał czytać, bo miał ból dupy że o nowościach w IKEA ani aferach w LP nic się nie pisze.
+
+Szefem oddziału Lasów Państwowych w mojej okolicy jest niejaki pan Adam. Jest on dla starego uosobieniem całego zła wyrządzonego przez Lasy Państwowe i ojciec przez wiele lat toczył z nim wojnę. Raz poszedł na jakieś zebranie leśników gdzie występował Adam i stary wrócił do domu z podartą koszulą bo siłą go usuwali z sali takie tam inby odpierdalał.
+Po klęsce w starciu fizycznym ze zbrojnym ramieniem PZW ojciec rozpoczął partyzantkę internetową polegającą na szkalowaniu LP i Adama na forach lokalnych gazet. Napierdalał na niego jakieś głupoty typu, że Adam był tajnym współpracownikiem UB albo że widział go na ulicy jak niósł drewno do lasu. Nie nauczyłem ojca into TOR więc skończyło się bagietami za szkalowanie i stary musiał zapłacić Adamowi 2000zł.
+
+Jak płacił to przez tydzień w domu nie dało się żyć, ojciec kurwił na przekupne sądy, LP, Adama i w ogóle cały świat. Z jego pierdolenia wynikało, że LP jak jacyś masoni rządzą całym krajem, pociągają za sznurki i mają wszędzie układy. Przeliczał też te 2000 na stoliki LACK, lampy LAMPAN czy fotele POANG i dostawał strasznego bólu dupy, ile on mógłby np hot-dogów za to kupić (kilkaset sztuk).
