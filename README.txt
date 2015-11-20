@@ -15,3 +15,15 @@ Jak któregoś razu, jeszcze w podbazie czy gimbazie, miałem urodziny to stary 
 
 Pojechaliśmy gdzieś wpizdu dwa województwa dalej, zaparkowaliśmy na placu a ojcu już się oczy świecą i oblizuje wargi podniecony. Rozstawił krzesełko i siedzimy przed drzwiami nadal zamkniętego sklepu i patrzymy na dostawców. Po pięciu minutach mi się znudziło, więc włączyłem discmana to mnie ojciec pierdolnął termosem EFTERFRÅGAD po głowie że dostawcy słyszą muzykę z moich słuchawek i się płoszą. Jak się chciałem podrapać po dupie to zaraz 'krzyczał szeptem' żebym się nie wiercił na krześle składanym GUNDE bo szeleszczę i sprzedawcy widzą jak się ruszam i uciekają. 6 godzin musiałem siedzieć w bezruchu i patrzeć na drzwi sklepu jak w jakimś jebany Guantanamo. Urodziny mam w listopadzie więc jeszcze do tego było zimno jak sam skurwysyn. W pewnym momencie ojciec wyciągnął z torby koc przeciwpożarowy PATRULL, okrył sie nim i spierdział. Wytłumaczył mi że trzeba w koc pierdzieć bo inaczej sprzedawcy słyszą i czują.
 
+Wspomniałem że ojciec ma kolegę Mårtena z którym jeździ do IKEI. Kiedyś towarzyszem wypraw sklepowych był hehe Zbyszek. Człowiek o kształcie pluszowej piłki BOLLKÄR z wąsem. Byli z moim ojcem prawie jak bracia, przychodził z żoną Bożeną na wigilie do nas itd. Raz ojciec miał imieniny zbysio przyszedł na hehe napój świąteczny DRYCK JULMUST. Najebali się i oczywiście cały czas gadali o meblach i drewnie. Ja siedziałem u siebie w pokoju.
+W pewnym momencie zaczęli drzeć na siebie mordę, czy generalnie lepsza jest płyta wiórowa czy paździerzowa.
+
+> WEŹ MNIE NIE WKURWIAJ ZBYCHU, WIDZIAŁEŚ TY KIEDYŚ JAK WIÓROWA JEST NOŚNA?
+> KURWA TADEK PAŹDZIERZOWA TRWALSZA TWOJA WIÓROWA TO MOŻE JEJ NASKOCZYĆ
+> CO TY MI TU O PAŹDZIERZU PIERDOLISZ JAK NAWET KOŁKA WBIĆ NIE UMIESZ. WIÓROWA JEST KRÓL MEBLA JAK LEW JEST KRÓL DŻUNGLI!
+
+No i aż się zaczęli nakurwiać zapasy na dywanie VRÅBY w dużym pokoju a ja z matką musieliśmy ich rozdzielać. Od tego czasu zupełnie zerwali kontakt. W zeszłym roku zadzwoniła żona zbysia, że zbysio spadł z taboretu BOSSE i zaprasza na pogrzeb. Odebrała akurat matka, złożyła kondolencje, odkłada słuchawkę i mówi o tym ojcu, a ojciec
+
+> I BARDZO KURWA DOBRZE
+
+Tak go za ten paździerz znienawidził.
