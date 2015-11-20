@@ -34,3 +34,30 @@ Szefem oddziału Lasów Państwowych w mojej okolicy jest niejaki pan Adam. Jest
 Po klęsce w starciu fizycznym ze zbrojnym ramieniem PZW ojciec rozpoczął partyzantkę internetową polegającą na szkalowaniu LP i Adama na forach lokalnych gazet. Napierdalał na niego jakieś głupoty typu, że Adam był tajnym współpracownikiem UB albo że widział go na ulicy jak niósł drewno do lasu. Nie nauczyłem ojca into TOR więc skończyło się bagietami za szkalowanie i stary musiał zapłacić Adamowi 2000zł.
 
 Jak płacił to przez tydzień w domu nie dało się żyć, ojciec kurwił na przekupne sądy, LP, Adama i w ogóle cały świat. Z jego pierdolenia wynikało, że LP jak jacyś masoni rządzą całym krajem, pociągają za sznurki i mają wszędzie układy. Przeliczał też te 2000 na stoliki LACK, lampy LAMPAN czy fotele POANG i dostawał strasznego bólu dupy, ile on mógłby np hot-dogów za to kupić (kilkaset sztuk).
+
+Stary jakoś w zeszłym roku stwierdził, że koniecznie musi mieć kartę kredytową IKEA FAMILY na zakupy, bo niby zwykłe raty za drogo wychodzą i wszyscy chcą go oszukać
+> synek z kartą na promocji to się prawdziwe okazje łapie! tam jest żywioł!
+ale nie miał zdolności kredytowej a hehe frajerem to on nie jest żeby bankowi płacić więc zgadał się z jakimiś majsterkowiczami w okolicy że wezmą kartę na spółkę, na jakiegoś janusza który ma konto w banku i umowę o pracę, i będą kartę po równo spłacali lub jeździli na zakupy razem.
+Na początku ta kooperatywa szła nawet nieźle, ale w któryś weekend ojciec się rozchorował i nie mógł z nimi jechać i miał o to olbrzymi ból dupy. Jeszcze ci jego koledzy dzwonili, że dają do każdego zakupu talon na hotdoga, więc mój ojciec tylko leżał czerwony ze złości na kanapie BEDDINGE i sapał z wkurwienia. Sytuację jeszcze pogarszało to, że nie miał na kogo zwalić winy co zawsze robi. W końcu doszedł do wniosku, że to niesprawiedliwe, że oni w sklepie na promocji bez niego bo przecież po równo spłacają i w niedzielę wieczorem, jak te janusze już wrociły z wyprawy, wyszedł nagle z domu..
+
+Po godzinie wraca i mówi do mnie że muszę mu z czymś pomóc. Wychodzę z pokoju a tam stary z kartą i portfelem janusza. Pytam skąd on ją wziął a on mówi że januszowi zajebał z komody FJÄLKINGE bo oni go oszukali i żebym wchodził na internet i zamawiał szybko wieszaki BAGIS na kartę. Na nic się zdało tłumaczenie że o tej porze i tak nie dostarczą. Na szczęście karta i tak nie zadziałała przy zakupie więc stary stwierdził że ją on sobie zatrzyma.
+Wsadził do pudełka MOTORP, które wsadził do szuflady LEKMAN którą wsadził w regał KALLAX i zadowolony chce wracać na kanapę BEDDINGE a tu nagle przyjeżdżają 2 samochody z januszami współwłaścicielami, którzy domyślili się gdzie ich własność może się znajdować xD. Zaczęła się nieziemska inba bo janusze drą mordy dlaczego kartę ukradł i że ma oddawać a ojciec się drze, że oni go oszukali i on 499 zł się składał a nie kupował w ten weekend. Ja starałem się załagodzić sytuację żeby ojciec od nich nie dostał wpierdolu bo było blisko.
+Po kilkunastu minutach sytuacja wyglądąła tak:
+- Mój ojciec leży na podłodze z płytek RUNNEN, trzyma kartę i krzyczy że nie odda
+- Janusze krzyczą że ma oddawać
+- Jeden janusz ma rozjebany nos bo próbował staremu wyrwać kartę i dostał z bańki
+- Dwóch policjantów ciągnie ojca za nogi i mówi że jedzie z nimi na komisariat bo pobił człowieka
+- Przed drzwiami do mieszkania stoją wszyscy sąsiedzi
+- Moja stara płacze i błaga ojca żeby zostawił kartę a policjantów żeby go nie aresztowali
+- Ja SMUTNYKVACK.psd
+W końcu policjanci wyrwali staremu kartę. Ja oddałem januszowi jego portfel, i zabrali kartę, rzucając staremu wcześniej 499zł i mówiąc że nie ma już do karty żadnego prawa i lepiej dla niego, żeby się nigdy w sklepie nie spotkali. Matka ubłagała policjantów, żeby nie aresztowali ojca. Janusz co dostał z bańki powiedział, że on się nie będzie pierdolił z łażeniem po komisariatach i ma to w dupie tylko ojca nie chce więcej widzieć.
+Stary do tej pory robi z januszami gównoburzę na forach dla majsterkowiczów bo założyli tam specjalny temat gdzie przestrzegali przed robieniem jakichkolwiek interesów z moim ojcem. Obserwowałem ten temat i widziałem jak mój ojciec nieudolnie porobił trollkonta
+> Rasmus54
+> Liczba postów: 1
+> Ten temat założyli jacyś idioci! Znam użytkownika stary_anona od dawna i to bardzo porządny człowiek i zdolny majsterkowicz! Chcą go oczernić bo zazdroszczą sprawnie zmontowanych mebli!
+
+Potem jeszcze używał tych trollkont do prześladowania niedawnych kolegów od karty. Jak któryś z nich zakładał jakiś temat to ojciec się tam wpierdalał na trollkoncie i np. pisał że krzywo meble skręca i widać że czytać instrukcji nie umie xD
+Z tych samych trollkont udzielał się w swoich tematach i jak na przykład wrzucał zdjęcia zmontowango 6 komorowej komody MALM to sam sobie pisał
+> Noo gratuluję mebla! Widać że doświadczony monter
+a potem się z tego cieszył i kazał oglądać mi i starej jak go chwalą na forum
+
