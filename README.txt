@@ -5,3 +5,13 @@ Druga połowa mieszkania zajebana katalogami IKEA. Co rok ojciec robi objazd po 
 
 Niezależnie od pogody co weekend zapierdala do sklepu IKEA. Od jakichś 5 lat w każdą niedzielę jem klopsiki szwedzkie KÖTTBULLAR na obiad, a stary pierdoli o zaletach jedzenia tego mielonego gówna. Jak się dostałem na gender studies, to stary przez tydzień pierdolił że to dzięki klopsikom, bo zawierają dużo szwedzkiej tolerancji i mózg mi lepiej pracuje. Co sobotę budzi ze swoim znajomym Mårtenem całą rodzinę o 4 w nocy bo hałasują przeglądając promocje, robiąc plan przejazdu po sklepie itd.
 
+Przy jedzeniu zawsze pierdoli o drewnianych meblach i za każdym razem temat w schodzi w końcu na Lasy Państwowe, ojciec sam się nakręca i dostaje strasznego bólu dupy durr niedostatecznie sadzo tylko wyrębujo hurr, robi się przy tym cały czerwony i odchodzi od stołu STORNÄS klnąc i idzie czytać biografię rodu Kampradów żeby się uspokoić.
+
+W tym roku sam sobie kupił na święta sofę EKTORP. Oczywiście do wigilii nie wytrzymał tylko już wczoraj ją rozpakował i złożył w dużym pokoju. Ubrał się w swój garnitur uszyty z tkanin SOFIA i MINNA i siedział cały dzień na tej sofie na środku mieszkania. Obiad (klopsiki KÖTTBULLAR) też w nim zjadł [cool][cześć].
+
+Gdybym mnie na długość ręki dopuścili do wszystkich mebli IKEA w polsce to bym wziął i rozpierdolił.
+
+Jak któregoś razu, jeszcze w podbazie czy gimbazie, miałem urodziny to stary jako prezent wziął mnie ze sobą do nowo otwartego sklepu IKEA w drodze wyjątku. Super prezent kurwo.
+
+Pojechaliśmy gdzieś wpizdu dwa województwa dalej, zaparkowaliśmy na placu a ojcu już się oczy świecą i oblizuje wargi podniecony. Rozstawił krzesełko i siedzimy przed drzwiami nadal zamkniętego sklepu i patrzymy na dostawców. Po pięciu minutach mi się znudziło, więc włączyłem discmana to mnie ojciec pierdolnął termosem EFTERFRÅGAD po głowie że dostawcy słyszą muzykę z moich słuchawek i się płoszą. Jak się chciałem podrapać po dupie to zaraz 'krzyczał szeptem' żebym się nie wiercił na krześle składanym GUNDE bo szeleszczę i sprzedawcy widzą jak się ruszam i uciekają. 6 godzin musiałem siedzieć w bezruchu i patrzeć na drzwi sklepu jak w jakimś jebany Guantanamo. Urodziny mam w listopadzie więc jeszcze do tego było zimno jak sam skurwysyn. W pewnym momencie ojciec wyciągnął z torby koc przeciwpożarowy PATRULL, okrył sie nim i spierdział. Wytłumaczył mi że trzeba w koc pierdzieć bo inaczej sprzedawcy słyszą i czują.
+
